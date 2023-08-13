@@ -21,6 +21,6 @@ Do NOT copy or inspo my skins. Me and my friends will call you out for doing it.
 <p align="center">
 <img src="https://kingcrimson.crd.co/assets/images/gallery16/8f500422.gif?v=ec2840be"> Skins of my kins please dni, I consider then to be me irl. Exceptions may vary.
 <p align="center">
-I am weary of Enmu skins/kins, you are fine to interact, just do it with caution. <img src="https://kingcrimson.crd.co/assets/images/gallery24/8dccf749.gif?v=08af690c">
+I am more than fine with anyone sitting with me! Just know I usually am AFK/Off-Tab so I may not respond to you. <img src="https://kingcrimson.crd.co/assets/images/gallery24/8dccf749.gif?v=08af690c">
 <p align="center">
 </p> 
