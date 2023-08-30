@@ -1,6 +1,6 @@
 <p align="center"> <img src="https://kingcrimson.crd.co/assets/images/gallery01/27277833.gif?v=08af690c">
 <p align="center">
-<img src="https://cdn.discordapp.com/attachments/1094016567735492678/1126737518239420506/IMG_7379.jpg" width="420">
+<img src="https://media.tenor.com/zfC27d5IcN4AAAAC/jojo-kira.gif" width="420">
 <h1 align="center"> <img src="https://kingcrimson.crd.co/assets/images/gallery01/444e49ad.gif?v=08af690c"> Do NOT Interact / Before You Interact <img src="https://kingcrimson.crd.co/assets/images/gallery01/6daf8e09.gif?v=08af690c"> </h1>
 <p align="center">
  <img src="https://kingcrimson.crd.co/assets/images/gallery01/964e63bd.gif?v=c96189b9"> Anyone under 18, I prefer friends closer in age range. 
